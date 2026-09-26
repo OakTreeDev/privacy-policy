@@ -80,7 +80,7 @@ Users are encouraged to review this Privacy Policy periodically to remain inform
 
 If you have questions, concerns, or requests regarding this Privacy Policy or LUSA's privacy practices, you may contact us at:
 
-Email: 
+Email: lusa.support@gmail.com
 
 10. Current Version
 
